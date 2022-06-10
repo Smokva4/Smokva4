@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Smokva4
 - 👀 I’m interested in html5
-- 🌱 I’m currently learning html5s
+- 🌱 I’m currently learning html5
 - 📫 For help contact me on discord Sm0kva#1146
